@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @CheemzZisProSkid
-- 👀 I’m interested in ... ya mom fuck nigga
-- 🌱 I’m currently learning ... yo mom body
-- 💞️ I’m looking to collaborate on ... yo mom
-- 📫 How to reach me ... ask yo mom bout yo dad
+- 👀 I’m interested in ... nothing
+- 🌱 I’m currently learning ... nothing
+- 💞️ I’m looking to collaborate on ... nothing
+- 📫 How to reach me ... nothing
 - 
 <!---
 CheemzZisProSkid/CheemzZisProSkid is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
